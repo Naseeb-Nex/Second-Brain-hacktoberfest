@@ -1,0 +1,3 @@
+There isn't a single answer to this question as the global recession is affecting different people and businesses in different ways. Some people may be struggling to make ends meet, while others may be seeing their businesses suffer. Some may be feeling anxious about the future, while others may be feeling hopeful that things will eventually turn around.
+
+In general, the global recession is a time of uncertainty for many people. It can be difficult to know what to expect or how to prepare for what may come next. The best thing to do is to stay informed and stay positive.
